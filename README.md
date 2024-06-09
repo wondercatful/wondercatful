@@ -17,7 +17,7 @@ D𝗼n't Be S𝗵y To Inter𝗮ct Wi𝘁𝗵 Me, I Re𝗮lly Don't Mind! 𝗡�
 
 ㅤㅤㅤㅤ⎯⎯ ㅤִㅤㅤ୨ ♡ ୧ㅤㅤִ  ⎯⎯   
 ㅤ[<img alt="alt_text" width="100px" src="https://64.media.tumblr.com/67017434da1689a10419a04158fb1efe/705e39b75584866f-49/s250x400/3ccbbf2293ae207d0497366b5cd943b9031ccbb6.pnj" />](https://rentry.co/glowingharmony)ㅤㅤㅤㅤㅤ[<img alt="alt_text" width="100px" src="https://64.media.tumblr.com/e1ab056cfb42595e1588f5cf5b8da20f/705e39b75584866f-37/s250x400/6c7ff2007ec19d1446b50ebde77e210cfcc3a762.pnj" />](https://en.pronouns.page/@OTORIEMUU)
-ㅤㅤㅤ♪ F𝗼r 𝗙𝘂𝘁her Inf𝗼𝗿𝗺𝗮tion, he𝗵e! ~ ☆
+ㅤㅤㅤ♪ F𝗼r 𝗙𝘂r𝘁her Inf𝗼𝗿𝗺𝗮tion, he𝗵e! ~ ☆
 <div id="header" align="center">
   <img src="https://64.media.tumblr.com/754aee6bd322bf16899f52d0d14d9df7/705e39b75584866f-3a/s400x600/d919f0e66c27b14456bcee1e13907a2d351a9c4b.pnj" width="1000"/>
 </div>
