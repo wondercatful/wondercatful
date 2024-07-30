@@ -32,3 +32,7 @@ Pl𝗲𝗮se Re𝘀𝗽𝗲ct Wh𝗲𝗻𝗲ver I h𝗮ve D𝗡I/DNI𝗨 I𝗻 M
   <img src="https://64.media.tumblr.com/86c1ecb1d6da15662b10c58a5134f868/fb5c54b2ede67b09-de/s500x750/9c34e0b3fab2d16ab69097ea3c21f0ecc17c5634.pnj" width="2000"/>
 </div>
 𝗖𝗥: U𝗿l Ico𝗻s: M𝗲 My𝘀𝗲𝗹𝗳 Ya𝘆! Go𝗼𝗱ne𝘀s Gra𝗽𝗵𝗶cs: waspsribbon on TUMBLR!
+<div id="header" align="left">
+  <img 
+    src="https://media.discordapp.net/attachments/1267929787809398846/1267954341562552484/blinkiesCafe-qm_12.gif?ex=66aaaa00&is=66a95880&hm=a8819daf9c69f35211b05389a64feac99748c16820e1a4140fa0cf41bde99b14&" width="200"/>
+</div>: By @PastelMelusine TYSM!!
